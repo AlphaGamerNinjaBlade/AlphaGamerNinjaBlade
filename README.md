@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AlphaGamerNinjaBlade
-- 👀 I’m interested in getting more money
+- 👀 I’m interested in earning more money
 - 🌱 I’m currently learning html/css/js
 - 💞️ I’m looking to collaborate on idk yet
 - 📫 How to reach me ...
